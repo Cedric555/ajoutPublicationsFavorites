@@ -40,4 +40,4 @@
 
 A tous les étudiants !
 
-[![Veuillez visiter notre site](https://media.giphy.com/media/cJ7gVV0QL9RPG/giphy.gif)](www.keepizi.com)
+[![Veuillez visiter notre site](https://media.giphy.com/media/cJ7gVV0QL9RPG/giphy.gif)](https://www.keepizi.com/)
